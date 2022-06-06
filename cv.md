@@ -6,4 +6,4 @@ _I want to learn **JS** for further employment in this environment, no work expe
 *no work experience*
 *Specialized secondary*
 *basic level of English*
-**21ge**
+**21 age**
