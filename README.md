@@ -1,1 +1,1 @@
-# rssschool-cv
+https://CuteEmptiness.github.io/rsschool-cv/cv
